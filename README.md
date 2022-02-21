@@ -1,0 +1,2 @@
+# i-love-etec
+"EU GOSTAVA DO ALMOÇO, VOTEI EM VC FRANKLIN"
